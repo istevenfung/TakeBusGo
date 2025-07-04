@@ -14,4 +14,4 @@
 《搭巴士去》對所有第三方數據的準確性概不負責。來源：https://data.gov.hk
 <hr>
 <p>查詢及支援</p>
-電郵：<a href="mailto:stevenfuturehk@gmail.com">stevenfuturehk@gmail.com</a>
+電郵：<a href="mailto:stevenfuture@icloud.com">stevenfuture@icloud.com</a>
